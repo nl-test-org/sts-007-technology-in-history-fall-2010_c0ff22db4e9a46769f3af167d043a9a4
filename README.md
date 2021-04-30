@@ -1,0 +1,1 @@
+# sts-007-technology-in-history-fall-2010_c0ff22db4e9a46769f3af167d043a9a4
